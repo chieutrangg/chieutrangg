@@ -4,7 +4,7 @@
 ## I'm a Front-end Developer, and full-time learner!!
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
+- 👯 I’m looking to collaborate and taking part in cool projects
 - 🥅 2021 Goals: Contribute more and learning by doing
 - ⚡ Fun fact: I love to draw, playing games and kalimba
 
