@@ -8,6 +8,7 @@
 - 🥅 2021 Goals: Contribute more and learning by doing.
 - ⚡ Fun fact: I love to draw, playing games and kalimba.
 - 👋 I'm currently blogging to share and learn about coding.
+- 🤣 If you're interested, you can check my blog here: https://chieutrangg.wixsite.com/ticktocktechtalk
 
 ### Connect with me:
 
